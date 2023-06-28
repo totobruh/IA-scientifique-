@@ -1,1 +1,1 @@
-# IA-scientifique-
+# AI-scientifique-
